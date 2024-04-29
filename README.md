@@ -1,1 +1,1 @@
-# bachelor-thesis
+The Story of Bachelor Thesis Journey
