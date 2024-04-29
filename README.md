@@ -55,6 +55,13 @@ Well, I wish you also a Bachelor's Thesis and a lot of good things in your life 
 So I hope your goals will be also successful, I wish you a lot of luck in your Bachelor's Thesis and in your life, and have a nice day! Goodbye!
 
 
+----------------------------------------------------------------------------------------------------
+
+**`THE COVER`**
+
+
+
+
 
 
 
