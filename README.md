@@ -11,8 +11,8 @@ Filmmaking is a team work. And that's the reason why I'm thankful to:
 I've decided that this Bachelor's Thesis will be a team effort. As I mentioned, filmmaking is collaborative, and I believe in the power of teamwork. Everyone has unique talents, and while I excel in certain aspects of animation and visual effects as a student, I recognize that I'm not skilled in every area. By bringing together individuals with diverse talents, we can create something truly unique, which is the goal of our Bachelor's Thesis.
 
 So generally, our Bachelor's Thesis has two parts: 
-- the theoretical part
-- the practical part. 
+- The Theoretical Part
+- The Practical Part. 
 
 
 In the theoretical part, I will talk about the history of the animation, and also I will mention principles of the animation and animation techniques. Of course I know that we have a lot of sources about the history of animation but my goal is to mention
