@@ -1,3 +1,3 @@
-The Story of Bachelor Thesis Journey
+# The Story of Bachelor's Thesis Journey
 
 ![Benjamín Haverla – black and white profile picture](Photos/ME.png)
