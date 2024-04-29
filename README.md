@@ -31,7 +31,7 @@ In our University as a Bachelor's Thesis, we have to create animated short film 
 
 > *ME:*
 
-**`okay, which story I should tell to the world and connect it with the Bachelor's Thesis?!`**
+**`Okay, which story I should tell to the world and connect it with the Bachelor's Thesis?!`**
 
 And I felt again it should be LOVE. We can see nowadays that we have a lot of struggles. Mainly I feel it from the news. There's a lot of wars... 
 
