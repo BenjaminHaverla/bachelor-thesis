@@ -71,7 +71,7 @@ But at the end, you can see the visual is a little bit different.
 
 You know the meaning is the same but we did some small changes. But I feel it's much more better. So it's good to have different point of view and as a director of some of your projects, you need to feel the balance. I mean which opinion is navigating you in the right way and which opinion is going to navigate you in the wrong way... So there's a lot in front of us, I mean we have still three minutes that we need to fill in our music video. 
 
-Well, I wish you also a Bachelor's Thesis and a lot of good things in your life and I hope that after some time, you can see this animated music video on my website. My plan is for this music video to be on the Filmfreeray website where I have my own profile and you can see there my other projects.
+Well, I wish you also a succesfull Bachelor's Thesis and a lot of good things in your life and I hope that after some time, you can see this animated music video on my website. My plan is for this music video to be on the Filmfreeray website where I have my own profile and you can see there my other projects.
 
 So I hope your goals will be also successful, I wish you a lot of luck in your Bachelor's Thesis and in your life, and have a nice day! Goodbye!
 
