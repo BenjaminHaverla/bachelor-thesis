@@ -45,6 +45,8 @@ And why animated music video? You know, I felt that I needed to put a lot of emo
 
 So Then I was wondering which people I should use for this animation or ask for help... that's better I think because that was the truth... Ask for help and I found these three amazing people and we officially done one minute but there are three minutes in front of us so we will see how it will go.
 
+## The Process of creation
+
 But thanks to them I believe we can create something unique. You know, in the practical part, I'm explaining also the practical process and there is some useful information. For example, how we saved time. I mean... okay... first I'm going to explain the process. We created music and according to the music we are doing animation and this can save you a lot of time because it's really hard to make animation, especially when it's hand-drawn animation. In our case, this is digitally hand-drawn animation. And imagine that you worked a lot of hours, a lot of days on the drawings, and then for example the music duration is going to change because we're still not ready with the music. Then you have to do it all again, and you lost so many hours!
 
 So what is much more better in our situation? In our case, the solution was to create first music and we said okay this is the official duration of the music and let's say official also emotions from the music let's work on the animation... 
