@@ -55,9 +55,15 @@ And this saved our time!
 
 And yeah I was working on the storyboard after the music one month and then I showed the storyboard to the animator and what is interesting is... that this project is about teamwork. Because she disagreed with some things that I showed in the storyboard and you can see right here:
 
+![Storyboard with butterfly](Photos/S_4.png)
 
+the example that in my vision there was one butterfly but at the end, we used more butterflies
 
-the example that in my vision there was one butterfly but at the end, we used more butterflies or for example, the hand was using also the fire but at the end you can see the visual is a little bit different.
+![Storyboard with butterfly](Photos/S_5.png)
+
+Or for example, the hand was using also the fire 
+
+But at the end you can see the visual is a little bit different.
 
 You know the meaning is the same but we did some small changes. But I feel it's much more better. So it's good to have different point of view and as a director of some of your projects, you need to feel the balance. I mean which opinion is navigating you in the right way and which opinion is going to navigate you in the wrong way... So there's a lot in front of us, I mean we have still three minutes that we need to fill in our music video. 
 
