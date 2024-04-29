@@ -30,6 +30,7 @@ In the practical part, I will explain the whole process of how we tried to apply
 In our University as a Bachelor's Thesis, we have to create animated short film with a length of at least three minutes. You know... I was asking myself: 
 
 > *ME:*
+
 okay, which story I should tell to the world and connect it with the Bachelor's Thesis?!
 
 And I felt again it should be LOVE. We can see nowadays that we have a lot of struggles. Mainly I feel it from the news. There's a lot of wars... 
