@@ -23,7 +23,7 @@ In the theoretical part, I will discuss the history of animation and also I will
 
 ## The Practical Part
 
-In the practical part, I will explain the whole process of how we tried to apply these principles but mainly how we worked together and what should be the result and what is the result. You know... now I'm going to talk mainly about the practical part and what is important to mention is the PATH...
+In the practical part, I will explain the whole process of how we tried to apply these principles but mainly how we worked together and what should be the result and what is the result. You know... now I'm going to talk mainly about the practical part and what is important to mention is the **`PATH`**... 
 
 ### Why we choose to create animated music video?
 
