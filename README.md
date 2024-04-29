@@ -57,15 +57,15 @@ And yeah I was working on the storyboard after the music one month and then I sh
 
 ![Storyboard with butterfly](Photos/S_4.png)
 
-the example that in my vision there was one butterfly but at the end, we used more butterflies
+The example is that in my vision there was one butterfly but at the end, we used more butterflies
 
 ![Original version of young girl with butterflies inside](Photos/S_5.png)
 
-Or for example, the hand was using also the fire 
+Or next example. The hand was using also the fire... 
 
 ![Storyboard with hand scenes](Photos/S_6.png)
 
-But at the end you can see the visual is a little bit different.
+But at the end, you can see the visual is a little bit different.
 
 ![Hands waiting for flying paper](Photos/S_7.png)
 
