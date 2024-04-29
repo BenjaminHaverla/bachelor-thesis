@@ -75,4 +75,6 @@ Well, I wish you also a succesfull Bachelor's Thesis and a lot of good things in
 
 So I hope your goals will be also successful, I wish you a lot of luck in your Bachelor's Thesis and in your life, and have a nice day! Goodbye!
 
+# [VISUAL STORY](https://drive.google.com/file/d/1sHr-lnof_lUobOJ6rtM9xT7brW-R36ub/view?usp=share_link)
+
 [![Benjamin video and behind him is green screen](Photos/S_8.png)](https://drive.google.com/file/d/1sHr-lnof_lUobOJ6rtM9xT7brW-R36ub/view?usp=share_link)
