@@ -17,6 +17,7 @@ So generally, our Bachelor's Thesis has two parts:
 
 
 ## The Theoretical Part
+![Historical animation tool](Photos/S_1.png)
 In the theoretical part, I will discuss the history of animation and also I will mention the principles of animation and animation techniques. Of course, I know that we have a lot of sources about the history of animation but my goal is to mention the important parts that, thanks to them, you can realize the numerous variations of how you can create your own animated project. Through the theoretical part I believe students or people who are passionate about animation, they can realize that there are a lot of options of how you can create your own animation. Also, the goal of this Bachelor's Thesis is to apply some principles of animation into our project.
 
 ## The Practical Part
