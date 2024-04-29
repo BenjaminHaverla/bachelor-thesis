@@ -33,6 +33,8 @@ In our University as a Bachelor's Thesis, we have to create animated short film 
 
 **`Okay, which story I should tell to the world and connect it with the Bachelor's Thesis?!`**
 
+![Photo of tank in Ukraine](Photos/S_2.png)
+
 And I felt again it should be **`LOVE`**. We can see nowadays that we have a lot of struggles. Mainly I feel it from the news. There's a lot of wars... 
 
 And I'm trying with this animated project to be a mirror of our society. And yes, it's true, I created a short film about love in 2021, but I grew up and I feel that I have again a little bit new perspective about the love. 
