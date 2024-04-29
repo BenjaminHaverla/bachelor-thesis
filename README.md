@@ -59,11 +59,15 @@ And yeah I was working on the storyboard after the music one month and then I sh
 
 the example that in my vision there was one butterfly but at the end, we used more butterflies
 
-![Storyboard with butterfly](Photos/S_5.png)
+![Original version of young girl with butterflies inside](Photos/S_5.png)
 
 Or for example, the hand was using also the fire 
 
+![Storyboard with hand scenes](Photos/S_6.png)
+
 But at the end you can see the visual is a little bit different.
+
+![Hands waiting for flying paper](Photos/S_7.png)
 
 You know the meaning is the same but we did some small changes. But I feel it's much more better. So it's good to have different point of view and as a director of some of your projects, you need to feel the balance. I mean which opinion is navigating you in the right way and which opinion is going to navigate you in the wrong way... So there's a lot in front of us, I mean we have still three minutes that we need to fill in our music video. 
 
