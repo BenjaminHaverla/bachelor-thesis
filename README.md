@@ -37,6 +37,8 @@ In our University as a Bachelor's Thesis, we have to create animated short film 
 
 And I felt again it should be **`LOVE`**. We can see nowadays that we have a lot of struggles. Mainly I feel it from the news. There's a lot of wars... 
 
+![Still from the short film "The Last Letter"](Photos/S_3.png)
+
 And I'm trying with this animated project to be a mirror of our society. And yes, it's true, I created a short film about love in 2021, but I grew up and I feel that I have again a little bit new perspective about the love. 
 
 And why animated music video? You know, I felt that I needed to put a lot of emotions about love and a lot of let's say information so I felt that with a music video you can tell a lot of emotions in a short time and If it's going to be connected with the animation it can be really interesting.
